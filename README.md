@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @fartcloud
+- 👀 I’m interested in ...
+- i fart in the cloud aka fart cloud
